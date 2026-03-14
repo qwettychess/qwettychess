@@ -5,17 +5,17 @@ https://i.pinimg.com/736x/bf/28/e5/bf28e523934259f41289f1ef37f9a395.jpg)
 제 홈 파일 파일을 읽어주셔서 감사합니다.
   </p>
 <p align="center">
-nei or ivrae
+nei or ivrae ᶻ 𝗓 𐰁 .ᐟ
 </p> <p align="center">
 (s)he and 19yo
 </p> 
 <p align="center">
-ᯓ If there's any problem with me, please contact me privately for a quick and direct resolution.
+ᯓ i'm not very good at communicating, so i hope you'll be the one to initiate the conversation. 
 </p>
 <p align="center">
   ⟢ 
 </p> </p> <p align="center">
-ᯓ Don't insult me when we don't know each other, or even when we do, you still deliberately do it.
+ᯓ i will joke around and talk more w the people i'm closest to, cuz i feel comfortable w them. 
 </p>
 
 ![gif](https://i.pinimg.com/736x/f5/4e/a1/f54ea1b2ed1979145e94bb8e6a96f81d.jpg) 
