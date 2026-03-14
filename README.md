@@ -5,7 +5,9 @@
 </p> <p align="center">
 (s)he and 19yo
 </p> 
+<p align="center">
 ᯓ If there's any problem with me, please contact me privately for a quick and direct resolution.
+</p>
 <p align="center">
   ⟢ 
 </p> </p> <p align="center">
