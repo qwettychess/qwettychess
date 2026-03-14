@@ -1,4 +1,4 @@
-![liyuu](https://komarev.com/ghpvc/?username=qwettyche&label=liyuu&color=white) 
+![liyuu](https://komarev.com/ghpvc/?username=qwettyche&label=liyuu&color=yellow) 
 ![gif](
 https://i.pinimg.com/736x/bf/28/e5/bf28e523934259f41289f1ef37f9a395.jpg)
 <p align="center">
