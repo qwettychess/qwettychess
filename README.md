@@ -3,10 +3,7 @@
 https://i.pinimg.com/736x/bf/28/e5/bf28e523934259f41289f1ef37f9a395.jpg)
 <p align="center">
 제 홈 파일 파일을 읽어주셔서 감사합니다.
-  </p>
-  
-  ![Spotify](https://spotify-github-profile.kittinanx.com/api/view?uid=31oe32m7ycq66yfjfhzdwam36qda)
-  
+ </p>
   
 </p>
 <p align="center">
