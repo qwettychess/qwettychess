@@ -1,6 +1,6 @@
 ![juhun](https://komarev.com/ghpvc/?username=qwettyche&label=juhun&color=yellow) 
 ![gif](
-https://i.pinimg.com/736x/ca/bd/aa/cabdaa52e06b15024b4ebd7dd153f7a6.jpg)
+https://i.pinimg.com/736x/c1/26/97/c12697a0b8b4a6d55462c6755365d221.jpg)
 <p align="center">
 제 홈 파일 파일을 읽어주셔서 감사합니다.
  </p>
@@ -24,4 +24,4 @@ nei or ivrae ᶻ 𝗓 𐰁 .ᐟ
   ᯓ if u have any problems, plz contact me directly for a quick resolution, thanks.
 </p>
 
-![gif](https://i.pinimg.com/1200x/52/05/a8/5205a83c5640030ac4d65732584062bf.jpg) 
+![gif](https://i.pinimg.com/736x/4a/6a/f6/4a6af6c1e8c8f0846293dbcbdd9003e8.jpg) 
