@@ -1,4 +1,7 @@
-[#straw](https://menti0n.straw.page)  [#atab](https://brookeartzz.atabook.org/) 
+<p align="center">
+  <a href="https://menti0n.straw.page">#straw</a> |
+  <a href="https://brookeartzz.atabook.org/">#atab</a>
+</p>
 <table>
   <tr>
 </i><td valign="middle" align="center">
