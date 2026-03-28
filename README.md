@@ -16,7 +16,7 @@ nei or ivrae
  </p>
 
  <p align="center">
-  <img src="https://i.pinimg.com/originals/9d/6b/3f/9d6b3f6b3d7c8e1c5a2c9d9a2f5e1c8b.jpg" width="500"/>
+  <img src="https://i.pinimg.com/736x/50/c0/88/50c088f5ac32cc10c4c928dff2917451.jpg" width="500"/>
 </p>
 
 <p align="center">
