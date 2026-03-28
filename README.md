@@ -1,6 +1,5 @@
 [#straw](https://menti0n.straw.page)  [#atab](https://brookeartzz.atabook.org/) 
 
-<table>
   <tr>
   <td valign="middle">
   愛 : puppy <br>
@@ -10,7 +9,6 @@
       <img src="https://github.com/keodolle/keodolle/raw/main/8c0932222347829b216bbed0a71f4801-removebg-preview.png" width="180"/>
     </td>
   </tr>
-</table>
 
  <p align="center">
   <img src="https://i.pinimg.com/736x/50/c0/88/50c088f5ac32cc10c4c928dff2917451.jpg" width="500"/>
