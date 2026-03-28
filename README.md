@@ -30,7 +30,7 @@
 </p>
 
 <p align="center">
-  <a href="https://open.spotify.com/track/3f0OEJd7mlPNhmH3fUOrqy">
-    <img src="https://img.shields.io/badge/Mention%20Me-CORTIS-87CEFA?style=for-the-badge&logo=spotify"/>
+  <a href="https://open.spotify.com/track/3rAcN3CLeSrkhIZN8PHbwb">
+    <img src="https://img.shields.io/badge/What%20You%20Want-CORTIS-87CEFA?style=for-the-badge&logo=spotify"/>
   </a>
 </p>
