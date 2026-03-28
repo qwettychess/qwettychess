@@ -14,7 +14,7 @@
   </table>
           
  <p align="center">
-   𓏲 ๋࣭  ࣪ ˖
+   ⋆🐾°
  </p>
  <p align="center">
   <img src="https://i.pinimg.com/736x/50/c0/88/50c088f5ac32cc10c4c928dff2917451.jpg" width="500"/>
